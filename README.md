@@ -1,2 +1,0 @@
-# BIODIVERSITY
-My Token
